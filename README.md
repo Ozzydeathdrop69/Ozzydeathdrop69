@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Ozzydeathdrop
 - 👀 I’m interested in coding and minecraft logical redstone.
-- 🌱 I’m currently learning C language
+- 🌱 I’m currently doing lots of random stuff 
 - ⚡ Fun fact: polytetrafluoroethylene is cool and i ate 32 gigs of RAM for breakfast
